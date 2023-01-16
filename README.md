@@ -1,4 +1,5 @@
-“Smart people learn from everything and everyone, average people from their experiences, stupid people already have all the answers.” -Socrates
+“Things may come to those who wait, but only the things left by those who hustle.”
+-Abraham Lincoln
 
 ![](https://media.tenor.com/tD7OYvf0DXcAAAAC/80s-retro.gif)
 
